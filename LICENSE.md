@@ -1,4 +1,4 @@
-# 
+# Experience dig deeper for brainrots like never before with automatic Script for dig deeper for brainrots, the #1 Script. Includes private server
 
 
 
